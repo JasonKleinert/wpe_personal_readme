@@ -10,7 +10,7 @@ My Goals at WP Engine include:
 - Deliver high quality code
 
 ## Things you should know about me
-I'm an early riser and start work early. My work day ends at 4 pm (excepting emergencies/critical meetings), so I can pick up my daughter from daycare and spend time with her before she goes to bed at 6 pm. After 6 pm I can be available again if that's required.
+I'm an early riser and start work early. My work day ends at 4 pm (excepting emergencies/critical meetings), so I can pick up my daughter from daycare and spend time with her before she goes to bed at 7 pm. After 7 pm I can be available again if that's required.
 
 Outside of work, I like to spend time in the outdoors. I have an interest in nature which leads me to fascinating places and unforgettable experiences.
 
